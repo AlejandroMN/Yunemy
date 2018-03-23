@@ -23,5 +23,6 @@
 5. Pon tu taza en el microondas y cocina 3 minutos a 1000 vatios (alto)
 6. Sacamos la taza del microondas y echamos más trocitos de chocolate por encima
 7. Dejamos enfriar un poco, y listo!
+8. Un chorrito de ron cubano.com
 
 [FUENTE RECETA](https://www.pequerecetas.com/receta/bizcocho-microondas/)
